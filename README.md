@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @gabrielhenriqueOp
 -**holas amigos, aqui é o alanzoka**
-- _estou apredendo a usar um aplicativo recomendado pelo caro amigo cap joga :coffe ._
+- _estou apredendo a usar um aplicativo recomendado pelo caro amigo cap joga ☕._
