@@ -3,4 +3,4 @@
 - _estou apredendo a usar um aplicativo recomendado pelo caro amigo cap joga ☕._
 - 
 - <img src= 
-  "https://tenor.com/pt-BR/view/alanzoka1-gif-18664480">
+  "https://p2.trrsf.com/image/fget/cf/774/0/images.terra.com/2021/11/11/imagem_2021-11-11_151423.png">
